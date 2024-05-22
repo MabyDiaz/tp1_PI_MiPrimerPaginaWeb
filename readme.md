@@ -1,4 +1,4 @@
-Proyecto Integrador - Grupo 10
+Proyecto Integrador - Grupo 10 - Año 2024
 
 - Avaca Silvana
 - Díaz Amelia Mabel
